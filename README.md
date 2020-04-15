@@ -15,6 +15,8 @@ Pollution prevention is the concept of no generated waste in the first place.
 
 Invest in reusable plastics instead of single use plastics.
 
+  For example, edible waste - cups made from pureed fruits and vegetables ( mentioned in National Geographic April 2019).
+
 Composting your food waste instead of sending it to a landfill.
 
 Riding your bike instead of driving somewhere.
